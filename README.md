@@ -1,3 +1,3 @@
 # belajar-kolaborasi
 
-what was i made for
+what was i made for yuhu
